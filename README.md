@@ -1,1 +1,0 @@
-# BGMD_MAPS
